@@ -1,0 +1,3 @@
+Strona robic cos
+
+ngfjwbfgw
